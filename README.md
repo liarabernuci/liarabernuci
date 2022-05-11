@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning a bit of everything, we learn everyday ;)  ...
 - 💞️ I’m looking to collaborate on new history projects...
 - 📫 How to reach me @liara.bernuci ...
-
+- 
+I am a **History** teacher :woman_teacher: and a student in goverment course **"Formadores em Ação"**  	:books:
 <!---
 liarabernuci/liarabernuci is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
