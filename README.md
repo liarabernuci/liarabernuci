@@ -5,7 +5,8 @@
 - 📫 How to reach me @liara.bernuci ...
 - 
 I am a **History** teacher :woman_teacher: and a student in government course **"Formadores em Ação"**  	:books:
-Thank you, teacher **Fran** :smile:
+
+Thank you, teacher **Fran** :smile: your classes are great! 
 <!---
 liarabernuci/liarabernuci is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
